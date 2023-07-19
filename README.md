@@ -149,4 +149,4 @@ Se possível:<br>
 
 ------------
 
-Disponibilizado com ♥ por [Pedro]([https://www.linkedin.com/in/cami-la/](https://www.linkedin.com/in/pedro-ivo-barreto-gomes-a313b51b9/)https://www.linkedin.com/in/pedro-ivo-barreto-gomes-a313b51b9/ "Pedro").
+Disponibilizado com ♥ por [pedro-ivo-barreto-gomes](https://www.linkedin.com/in/pedro-ivo-barreto-gomes-a313b51b9/ "pedro-ivo-barreto-gomes").
